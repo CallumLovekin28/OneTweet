@@ -10,9 +10,12 @@ Ed Balls was part of the Labour Uk party and went to Harvard University. I am pl
 
 ### [Harvard](/Posters/EdBalls.jpg)
 
-So reading this article I saw that this tweet had been shared over 14,000 times so my second variation of my poster I decided to repeat the tweet over and over to show how many times it had been retweeted. So I decided to also use the twitter colours for this so I searched up the offical Hex Codes for the colours they use in the branding of twitter which I found [here].(http://designpieces.com/2012/12/twitter-colour-palette/) The other twitter poster where the tweet is repeated over and over again kind of follows the same princible as the fact its been retweeted 14,000 times, but also shows how many peoples twitter it has been on and how many eyes have seen it.
+So reading this article I saw that this tweet had been shared over 14,000 times so my second variation of my poster I decided to repeat the tweet over and over to show how many times it had been retweeted. So I decided to also use the twitter colours for this so I searched up the offical Hex Codes for the colours they use in the branding of twitter which I found [here](http://designpieces.com/2012/12/twitter-colour-palette/). 
 
 ### [Repeated Tweet](/Posters/EdBalls2.jpg)
+
+The other twitter poster where the tweet is repeated over and over again kind of follows the same princible as the fact its been retweeted 14,000 times, but also shows how many peoples twitter it has been on and how many eyes have seen it. The sheer amount of text is overwhelming and so is the fact this tweet has been seen so many times. I also placed a Blue Twitter Bird in the middle of the page to give it some contect.
+
 
 ### [Page Of Tweet](/Posters/EdBalls3.jpg)
 
