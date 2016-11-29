@@ -1,6 +1,6 @@
 # OneTweet :point_up::bird:
 
-### All posters can be found in the poster folder above ^
+### All posters can be found in the poster folder above or click on the links below ^
 
 In class we used AI (Illustrator) to create typography posters using first tweets form influential twitter accounts. My chosen tweet is shown below,
 
